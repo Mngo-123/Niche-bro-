@@ -17,4 +17,5 @@ Click [here](https://irv77.github.io/hd_fnaf/ucn/) for ⬛⬛⬛⬛ UCN!
 
  <hr>
 
-NOT OFFICIAL ⬛⬛⬛⬛ PRODUCT. NOT APPROVED BY OR ASSOCIATED WITH SCOTT CAWTHON. (I'm sorry I had to do this to go unnoticed by smoothwalll.
+NOT OFFICIAL ⬛⬛⬛⬛ PRODUCT. NOT APPROVED BY OR ASSOCIATED WITH SCOTT CAWTHON.
+(I'm sorry, I had to do this to go unnoticed by smoothwall).
